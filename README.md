@@ -37,7 +37,3 @@
 ## ✨ Unique Section
 > **They say you outshine your own expectations in pressure.**
 
----
-
-If you’d like any changes, let me know! 😊
-
